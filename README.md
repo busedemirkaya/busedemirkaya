@@ -3,6 +3,10 @@
 
 - 👋 Hi, I’m Buse!
 
+- I graduated from university in 2022.
+- I'm an Engineer and a Developer. 
+
+
 
 
 - 👀 I’m interested in   
